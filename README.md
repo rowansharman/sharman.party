@@ -1,8 +1,11 @@
 # sharman.party
 ![Rare Exports](https://i.guim.co.uk/img/static/sys-images/Observer/Columnist/Columnists/2010/12/2/1291290666804/rare-exports-006.jpg?width=465&dpr=1&s=none&crop=none)
 
-<p>December 19th, 2026, 3-10:30p with many scheduled activities.</p>
-<p>Please call to RSVP! 33SHARMAN3 aka 337-427-6263 (ext. 25)</p>
+[December 19th, 2026, 3-10:30p](https://addcal.io/e/ocwhi7tyjbek/auto) with many scheduled activities.
+
+Please call to RSVP! [33SHARMAN3](call.html) aka 337-427-6263 (ext. 25)
+
+Don't forget to [add our contact](33SHARMAN3.vcf)!
 
 ## Skeddy
 - General hang/old time jam: 3-6p (hard stop) 
