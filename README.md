@@ -8,7 +8,7 @@ Please call to RSVP! <a href="call.html" target="_blank">33SHARMAN3</a> aka 337-
 Don't forget to [add our contact](33SHARMAN3.vcf)!
 
 ## Skeddy
-- General hang/old time jam: 3-6p (hard stop) 
+- General hang/old time jam: 3-6p
 - White elephant: 6:30p - 7:30p
 - Movie (hard start): 8:00p - 9:30p
 - Movie recovery: 9:30p - 10:30p
@@ -23,16 +23,16 @@ Feel free to bring dinner for yourself if you wanna hang all day (we can provide
 ## General Hang / Old Time Jam (3p - 6p)
 The <s>scoundrels</s> musicians among you may want to have a little jam! Expect folks to be hanging out and chatting who are not playing music.
 
-Old time music is a style of folk music typically played with stringed instruments including fiddle, guitar, banjo, mandolin, dulcimer, or bass. Piano is uncommon but I’ve seen it. If you play an instrument like this, we can likely show you some simple chords to join!
+Old time music is a style of folk music typically played with stringed instruments including fiddle, guitar, banjo, mandolin, dulcimer, bass, piano, etc. If you play an instrument like this, we can likely show you some simple chords to join!
 
-## White Elephant (Participation Optional) (6:30 - 7:30 p)
+## White Elephant (6:30 - 7:30p)
 Oh no, what kind of gift should I bring, so much pressure!!
 
-Go for “look at this weird thing I made in 30 minutes; found at a garage sale/goodwill/a stranger; an heirloom I desperately don’t want”. Past hit items include an old suitcase full of CDs from someone’s weird neighbor; a color pencil drawing of a Rainier, drawn during the party; a small street sign; simple quilted potholders. Not all items need to be hit items. We will have a few extra items if you forget or don’t have time, let us know!
+Go for “look at this weird thing I made in 30 minutes; found at a garage sale/goodwill/a stranger; an heirloom I desperately don’t want”. Past hit items include a suitcase of CDs from someone’s neighbor; a hand drawing of a beer, drawn during the party; a street sign; simple quilted potholders. Don't stress!. We will have extra items if you forget or don’t have time :)
 
-## The Movie (8 - 9:30 p) - Hard Start
+## The Movie (8 - 9:30p) - Hard Start
 If you know, you know. For maximum enjoyment, don’t look it up.
 
-It is a little scary! This website tells you some common triggers in movies with minimal spoilers (title is Rare Exports): https://www.doesthedogdie.com
+It is a little scary! This [doesthedogdie.com](https://www.doesthedogdie.com/media/10991) is great if you want to check for some common triggers with minimal spoilers.
 
 
