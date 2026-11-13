@@ -1,9 +1,9 @@
 # sharman.party
 ![Rare Exports](https://i.guim.co.uk/img/static/sys-images/Observer/Columnist/Columnists/2010/12/2/1291290666804/rare-exports-006.jpg?width=465&dpr=1&s=none&crop=none)
 
-[December 19th, 2026, 3-10:30p](https://addcal.io/e/ocwhi7tyjbek/auto) with many scheduled activities.
+<a href="https://addcal.io/e/ocwhi7tyjbek/auto" target="_blank">December 19th, 2026, 3-10:30p</a> with many scheduled activities.
 
-Please call to RSVP! [33SHARMAN3](call.html) aka 337-427-6263 (ext. 25)
+Please call to RSVP! <a href="call.html" target="_blank">33SHARMAN3</a> aka 337-427-6263 (ext. 25)
 
 Don't forget to [add our contact](33SHARMAN3.vcf)!
 
