@@ -18,7 +18,7 @@ We will provide mulled wine and cider, maybe a couple other treats. Bring cookie
 Feel free to bring dinner for yourself if you wanna hang all day (we can provide if you ask ahead)
 
 ## General Hang / Old Time Jam (3p - 6p)
-The ~scoundrels~ musicians among you may want to have a little jam! Expect folks to be hanging out and chatting who are not playing music.
+The <s>scoundrels</s> musicians among you may want to have a little jam! Expect folks to be hanging out and chatting who are not playing music.
 
 Old time music is a style of folk music typically played with stringed instruments including fiddle, guitar, banjo, mandolin, dulcimer, or bass. Piano is uncommon but I’ve seen it. If you play an instrument like this, we can likely show you some simple chords to join!
 
