@@ -33,6 +33,6 @@ Go for “look at this weird thing I made in 30 minutes; found at a garage sale/
 ## The Movie (8 - 9:30p) - Hard Start
 If you know, you know. For maximum enjoyment, don’t look it up.
 
-It is a little scary! This [doesthedogdie.com](https://www.doesthedogdie.com/media/10991) is great if you want to check for some common triggers with minimal spoilers.
+It is a little scary! [doesthedogdie.com](https://www.doesthedogdie.com/media/10991) is great if you want to check for some common triggers with minimal spoilers.
 
 
