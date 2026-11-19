@@ -1,5 +1,5 @@
 # sharman.party
-![Rare Exports](https://i.guim.co.uk/img/static/sys-images/Observer/Columnist/Columnists/2010/12/2/1291290666804/rare-exports-006.jpg?width=465&dpr=1&s=none&crop=none)
+<img src="2026_poster_addy.png" width="600" alt="Party Poster">
 
 <a href="https://addcal.io/e/ocwhi7tyjbek/auto" target="_blank">December 19th, 2026, 3 - 10:30p</a> with many scheduled activities.
 
