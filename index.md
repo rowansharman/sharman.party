@@ -1,5 +1,5 @@
 # sharman.party
-<img src="2026_poster_addy.png" width="600" alt="Party Poster">
+<img src="2026_poster_addy_new.png" width="600" alt="Party Poster">
 
 <a href="https://addcal.io/e/ocwhi7tyjbek/auto" target="_blank">December 19th, 2026, 3 - 10:30p</a> with many scheduled activities.
 
