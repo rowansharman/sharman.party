@@ -1,3 +1,9 @@
+---
+layout: default
+title: sharman.party
+robots: noindex, nofollow
+---
+
 # sharman.party
 <img src="2026_poster_addy.png" width="600" alt="Party Poster">
 
